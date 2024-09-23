@@ -1,0 +1,2 @@
+# DIGIEXAM-FUSK
+DIGIEXAM FUSK HOS OSS-https://discord.gg/E6wZvttEaE
